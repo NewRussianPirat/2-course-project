@@ -1,1 +1,1 @@
-https://NewRussianPirat.github.io/electric_train/
+https://NewRussianPirat.github.io/2-course-project/
